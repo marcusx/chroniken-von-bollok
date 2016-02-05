@@ -1,2 +1,3 @@
 # Die dunklen Tage
 
+ herzlich kommen auf unserer neuen Webseite. ich möchte Ihnen einiges über unsere Firma . wir sicherlich schon gehört haben machen wir ganz tolle Webseiten und manchmal leuchten die Verwaltung.  neben den letzten vier Tagen haben wir intensiv dran gearbeitet dieses Buch zu einem großen Erfolg zu machen und wir würden uns freuen wenn sie das auch so toll.  in einigen Studios sind jetzt Haare gefunden worden dort werden versuchen
